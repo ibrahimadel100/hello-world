@@ -6,5 +6,7 @@ I am an Egyptian citizen with 2 Bachelor Degrees, a Bachelor of Business Adminis
 
 I always strive to educate myself, and I have even started to study German. Continuing education is simply a lifestyle for me and that inspires my students and clients so much. So, I hope to be a good addition to you.
 
+THAT'S ME!
+
 Thank you
 
